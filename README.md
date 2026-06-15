@@ -1,1 +1,1 @@
-# -Synent-Technologies-Internship-Task-2-Responsive-Landing-Page
+https://www.youtube.com/watch?v=Gak3RzHGiCo
